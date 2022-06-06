@@ -12,7 +12,7 @@
 - ⚡ Fun fact **I don't go outside**
 
 <h3 align="left">Connect with me:</h3>
-<p align="left">
+<p align="left">16holmesj@whsb.essex.sch.uk
 </p>
 
 <h3 align="left">Languages and Tools:</h3>
